@@ -118,4 +118,4 @@ Final Presentation (PDF)
 Arnab Mondal
 📧 arnabmondal0407@gmail.com
 
-🔗 LinkedIn: https://linkedin.com/in/arnab-mondal-108966244
+🔗 LinkedIn: https://www.linkedin.com/in/arnabmondal98/
